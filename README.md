@@ -1,1 +1,2 @@
 # Inversi-n-global-frente-a-la-inestabilidad-pol-tica
+La inestabilidad política en regiones clave afecta profundamente las decisiones de inversión. La incertidumbre económica que genera disuade a los inversores, quienes priorizan mercados estables con marcos regulatorios claros. La volatilidad en las políticas gubernamentales, junto con los riesgos de cambios repentinos en las normativas, afecta negativamente el flujo de capital hacia estas regiones. La diversificación y los activos refugio son algunas de las estrategias para mitigar estos riesgos.
